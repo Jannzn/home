@@ -1,1 +1,1 @@
-www.zijian.cf
+zijian.cf
